@@ -1,2 +1,1 @@
-# bminhkma.github.io
 CV
